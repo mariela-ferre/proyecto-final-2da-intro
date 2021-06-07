@@ -1,5 +1,5 @@
 - Número del equipo:13
-- Nombre del equipo: Alfa buena maravilla onda dinamita escuadrón lobo
+- Nombre del equipo: Chicas maravilla alda dinamita escuardón lobo
 - Nombre de todos miembros en tu equipo: Karla Tlazalo Vázquez, Mariela Ferré Lebrón, Miriam Ríos Guzmán, Nancy Aurora Angeles Damián
 - ¿Qué problema global eligieron ustedes? Equidad de género
 - ¿Porque eligieron ese problema?Elegimos este problema porque somos todas mujeres y nos atraviesan diferentes tipos de violencia, por ello que queremos vivir plenamente en un mundo más justo en el que podamos tener las mismas oportunidades y derechos. Esto lo justificamos con los Objetivos de Desarrollo Sostenible(ODS), en particular con el número 5: Igualdad de género
